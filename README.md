@@ -9,3 +9,4 @@ Meu nome é Yasmim Menezes
   ### Você entrar em contato comigo 📫  
 -  00001104045114sp@al.educacao.sp.gov.br
 -@gatatristi
+-![](https://media1.tenor.com/m/N0MNEV-5or4AAAAC/chipi-chipi-chipi.g)
